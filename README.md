@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi all. I will be glad to cooperate with all known hackers  👋
 
 <!--
 **NaviDarkNet/NaviDarkNet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
